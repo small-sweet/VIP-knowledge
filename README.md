@@ -1,9 +1,7 @@
 # 资源分类
 
 ## 资源目录（还有很多没写进目录）
-http://note.youdao.com/noteshare?id=a01f8f5fea136c7afe61708c2e0638a6
-
-目录可以搜到的资源，有偿分享！支持试听试看，非诚勿扰！
+https://www.panmulu.com/share?app=97563592
 
 ## 收费标准（可自行对比TaoBao同类资源价格）
 
