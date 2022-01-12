@@ -1,21 +1,21 @@
 # 资源分类
 
-## 资源目录
+## 一、资源目录
 https://www.panmulu.com/share?app=97563592
 
-## 收费标准（全网最低）
+## 二、收费标准（全网最低）
 
-#### 普通会员 79 元 （原价99元，已更新11T，持续更新）
+#### 1.普通会员 79 元 （原价99元，已更新11T，持续更新）
 
 内容包含：目录[【AAAAAA】](https://www.panmulu.com/share?app=97563592)中的20多个主流平台
 
-#### 至尊会员 149 元 （原价199元，已更新113T，持续更新）
+#### 2.至尊会员 149 元 （原价199元，性价比高，已更新113T，持续更新）
 
 内容包含：目录上看到的所有会员课程，[【AAAAAA】](https://www.panmulu.com/share?app=97563592)、[IT会员](https://www.panmulu.com/share?app=97563592&dir_id=54)、[网赚会员](https://www.panmulu.com/share?app=97563592&dir_id=75)、[设计会员](https://www.panmulu.com/share?app=97563592&dir_id=124)、[大师会员](https://www.panmulu.com/share?app=97563592&dir_id=74)、[至尊专享](https://www.panmulu.com/share?app=97563592&dir_id=62)、[亲子会员](https://www.panmulu.com/share?app=97563592&dir_id=61) 等等，全网最全，没有之一！
 
 </details>
 
-# 售后服务
+# 三、售后服务
 
 <b><details><summary>一、会员终身免费学习</summary></b>
 
@@ -29,7 +29,7 @@ https://www.panmulu.com/share?app=97563592
 
 </details>
 
-# 联系我们
+# 四、联系我们
 
 我的微信：**zs62525**
 
