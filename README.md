@@ -1,15 +1,15 @@
 ## 一、资源目录
-https://www.panmulu.com/share?app=97563592
+http://jiansuo.cjtsg.com/index/?path=/I-IT%E4%BC%9A%E5%91%98/
 
 ## 二、收费标准（全网最低）
 
 #### 1.普通会员 79 元 （原价99元，已更新11T，持续更新）
 
-内容包含：目录[【AAAAAA】](https://www.panmulu.com/share?app=97563592)中的20多个主流平台
+内容包含：目录[【AAAAAA】](http://jiansuo.cjtsg.com/category/?path=AAAAAAA)中的20多个主流平台
 
 #### 2.至尊会员 149 元 （原价199元，性价比高，已更新113T，持续更新）
 
-内容包含：目录上看到的所有会员课程，[【AAAAAA】](https://www.panmulu.com/share?app=97563592)、[IT会员](https://www.panmulu.com/share?app=97563592&dir_id=54)、[网赚会员](https://www.panmulu.com/share?app=97563592&dir_id=75)、[设计会员](https://www.panmulu.com/share?app=97563592&dir_id=124)、[大师会员](https://www.panmulu.com/share?app=97563592&dir_id=74)、[至尊专享](https://www.panmulu.com/share?app=97563592&dir_id=62)、[亲子会员](https://www.panmulu.com/share?app=97563592&dir_id=61) 等等，全网最全，没有之一！
+内容包含：目录上看到的所有会员课程，[【AAAAAA】](http://jiansuo.cjtsg.com/category/?path=AAAAAAA)、[IT会员](http://jiansuo.cjtsg.com/category/?path=IT%E4%BC%9A%E5%91%98)、[网赚会员](http://jiansuo.cjtsg.com/category/?path=%E7%BD%91%E8%B5%9A%E4%BC%9A%E5%91%98)、[设计会员](http://jiansuo.cjtsg.com/category/?path=%E8%AE%BE%E8%AE%A1%E4%BC%9A%E5%91%98)、[大师会员](http://jiansuo.cjtsg.com/category/?path=%E5%A4%A7%E5%B8%88%E4%BC%9A%E5%91%98)、[至尊专享](http://jiansuo.cjtsg.com/category/?path=%E8%87%B3%E5%B0%8A%E4%BC%9A%E5%91%98%E4%B8%93%E4%BA%AB)、[亲子会员](http://jiansuo.cjtsg.com/category/?path=%E4%BA%B2%E5%AD%90%E5%A4%A7%E6%B1%87%E6%80%BB) 等等，全网最全，没有之一！
 
 ## 三、售后服务
 
